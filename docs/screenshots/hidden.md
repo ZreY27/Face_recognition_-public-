@@ -1,0 +1,1 @@
+Pour des raisons de sécurité, les captures d'écran ne sont pas disponibles.
